@@ -1,0 +1,2 @@
+# delivering-food-at-home
+'Roof top, multi-cousin resto bar.  Complete with Bar, serving beer and liquor, Veg and Fruit Juices, Ice cream and various coffee and tea options.  Menu strives to serve the need of commuters of various taste: Rwanda, European and Asian options available. Ideal for groups. Birthdays, get-together events are common functions. But check with customer care before planning, and book your date. Many times venue is booked in advance. The name Ki-Asili comes from the Swahili word Asili for Natural/Original, hence Ki-Asili.'
